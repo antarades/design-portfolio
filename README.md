@@ -52,6 +52,6 @@ No part of the visual work may be reused or redistributed.
 
 ## 🌐 Connect with Me
 
-🌐 [Github](github.com/antarades)
-📨 [Email](antarakyw05@gmail.com)
+🌐 github.com/antarades
+📨 antarakyw05@gmail.com
 🧠 [Behance](https://www.behance.net/antarasrivast2)
